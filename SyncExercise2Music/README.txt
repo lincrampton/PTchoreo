@@ -1,0 +1,1 @@
+humans respond to music and group activities.  offering the patient a system with their routines choreographed to their favorite genre of music, along with audio instructions and motivations, will increase patient compliance with exercise routines and patient life satisfaction.
